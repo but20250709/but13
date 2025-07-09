@@ -10,4 +10,4 @@
 
 这里汇集了最新最热的国产成人影视资源，涵盖多种类型与题材，满足不同用户的观影需求。视频画质清晰流畅，支持多设备观看，带来极致观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/but20250709/but13 ）</span>
